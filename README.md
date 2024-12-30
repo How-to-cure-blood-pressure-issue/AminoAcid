@@ -1,1 +1,4 @@
-# AminoAcid
+Managing high blood pressure requires a combination of lifestyle changes and sometimes medication. A key approach is adopting a healthy diet, such as the DASH diet, which emphasizes fruits, vegetables, whole grains, lean proteins, and low-fat dairy, while limiting salt and saturated fats. Maintaining a healthy weight is equally important, as losing even a small amount of weight can significantly lower blood pressure.
+In addition to medication, you might want to consider supplements that can naturally support blood pressure management. Amino acids like L-arginine have been shown to help improve blood flow and reduce blood pressure by relaxing blood vessels. Some people find that adding an amino acid supplement alongside their medication provides extra support for maintaining healthy blood pressure levels.
+
+This supplement has been working for me so far! https://www.amazon.co.uk/Amino-Alliance-L-Glutamine-L-Arginine-Palatinose/dp/B0BG8YHQYX?ref_=ast_sto_dp&th=1&psc=1
